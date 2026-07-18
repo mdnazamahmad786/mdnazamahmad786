@@ -1,7 +1,7 @@
 #💫 Hi 👋, I'm Ahmad Md Nazam
 **A passionate AI Engineer || Software Engineer || Exploring in south korea**
 
-Email Me 👉 ✉️ **nazamahmad022@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **mdnazam1official@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** AI Projects
 - 🌱 **I’m currently learning:** AI Engineering
